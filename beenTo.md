@@ -5,7 +5,10 @@
 ## Been To...
 
 #### Yellowknife, Northwest Territories, Canada
+hi
 
 #### Along the Autoroute 138, Quebec, Canada
+hi
 
 #### Along the James bay Road, Quebec, Canada
+hi

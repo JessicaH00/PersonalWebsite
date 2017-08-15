@@ -8,7 +8,7 @@
 hi
 
 ### Along the Autoroute 138, Quebec, Canada
-![hi](http://www.autoroutes.info/autoroutes/138.gif)
+![Autoroute 138](http://www.autoroutes.info/autoroutes/138.gif)
 
-### Along the James bay Road, Quebec, Canada
+### Along the James Bay Road, Quebec, Canada
 hi

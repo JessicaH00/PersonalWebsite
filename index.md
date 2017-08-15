@@ -1,7 +1,7 @@
 ## John Hilliard Was Here
 Test
 
-does this [link](./john.html) work?
+does this [link](./john.md) work?
 
 ## Welcome to GitHub Pages
 

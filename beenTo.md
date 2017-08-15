@@ -1,7 +1,2 @@
-This is a test
-
-John Hilliard was here
-
-
-[john](jfh.me)
+# Jessica's Travel Blog
 

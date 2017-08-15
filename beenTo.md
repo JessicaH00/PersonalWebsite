@@ -5,7 +5,7 @@
 ## Been To...
 
 ### Yellowknife, Northwest Territories, Canada
-hi
+![Yellowknife](https://upload.wikimedia.org/wikipedia/en/thumb/6/69/City_of_Yellowknife_CoA.svg/1024px-City_of_Yellowknife_CoA.svg.png)
 
 ### Along the Autoroute 138, Quebec, Canada
 ![Autoroute 138](http://www.autoroutes.info/autoroutes/138.gif)

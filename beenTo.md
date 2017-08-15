@@ -4,11 +4,11 @@
 
 ## Been To...
 
-#### Yellowknife, Northwest Territories, Canada
+### Yellowknife, Northwest Territories, Canada
 hi
 
-#### Along the Autoroute 138, Quebec, Canada
+### Along the Autoroute 138, Quebec, Canada
 hi
 
-#### Along the James bay Road, Quebec, Canada
+### Along the James bay Road, Quebec, Canada
 hi

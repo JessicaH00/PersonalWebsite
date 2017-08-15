@@ -1,7 +1,8 @@
-## John Hilliard Was Here
-Test
 
-does this [link](./john.md) work?
+
+## Jessica's Travel Blog
+
+[Home](./home.md)
 
 ## Welcome to GitHub Pages
 

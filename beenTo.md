@@ -28,4 +28,4 @@ After six hours on the plane, we finally got off at the Vancouver International 
 -------
 
 ### Along the James Bay Road, Quebec, Canada
-<img src="http://gingerich.net/wp-content/uploads/Trips/2012%20James%20Bay/Welcome-sign.jpg" alt="Picture of Bienvenu à la Route de James Bay, meaning Welcome to the James Bay Road" title="Picture of Bienvenu à la Route de James Bay, meaning Welcome to the James Bay Road" width=300>
+<img src="http://gingerich.net/wp-content/uploads/Trips/2012%20James%20Bay/Welcome-sign.jpg" alt="Picture of Bienvenu à la Route de la James Bay, meaning Welcome to the James Bay Road" title="Picture of Bienvenu à la Route de la James Bay, meaning Welcome to the James Bay Road" width=300>

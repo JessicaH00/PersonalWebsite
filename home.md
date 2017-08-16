@@ -1,4 +1,4 @@
-"markdown.styles": ["styles.css"]
+markdown.styles: ["styles.css"]
 
 # Jessica's Travel Blog
 

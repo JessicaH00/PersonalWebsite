@@ -11,7 +11,7 @@
 ### Yellowknife, Northwest Territories, Canada
 <img src="https://upload.wikimedia.org/wikipedia/en/thumb/6/69/City_of_Yellowknife_CoA.svg/1024px-City_of_Yellowknife_CoA.svg.png" alt="Yellowknife city symbol Thumbnail" title="Yellowknife city symbol Thumbnail" width=200>
 
-#### Departure -- February 28, 2014
+#### February 28, 2014 -- Departure
 
 In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we got on the plane and left for our one week trip to Vancouver and Yellowknife.
 
@@ -20,7 +20,7 @@ After six hours on the plane, we finally got off at the Vancouver International 
 <img src="https://qph.ec.quoracdn.net/main-qimg-95e96d7c721fd134249602258beb746d" alt="Arrow pointing at Vancouver on map" title="Arrow pointing at Vancouver on map" width=400>
 
 
-#### Bike around The Stanley Park -- March 1, 2014
+#### March 1, 2014 -- Bike around The Stanley Park
 
 In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we got on the plane and left for our one week trip to Vancouver and Yellowknife.
 

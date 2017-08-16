@@ -9,6 +9,8 @@
 -------
 
 ### Comiket, Tokyo, Japan
+<img src="https://i.ytimg.com/vi/BrPpbeCMxBg/maxresdefault.jpg" alt="Yellowknife city symbol Thumbnail" width=200>
+
 <img src="https://upload.wikimedia.org/wikipedia/commons/2/26/The_Cosplayers_of_Comiket_69.jpg" alt="Yellowknife city symbol Thumbnail" width=200>
 
 <img src="https://cdn.cheapoguides.com/wp-content/uploads/sites/2/2015/12/comiket-1138.jpg" alt="Yellowknife city symbol Thumbnail" width=200>

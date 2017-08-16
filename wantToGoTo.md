@@ -17,7 +17,7 @@
 
 <img src="http://blog.fromjapan.co.jp/en/wp-content/uploads/2015/01/dddojjin.png" alt="Yellowknife city symbol Thumbnail" title="Doujinshis" width=400>
 
-<img src="https://manga.tokyo/wp-content/uploads/2016/08/min-9282.jpg" alt="Yellowknife city symbol Thumbnail" title="Comiket Doujinshi sellers" width=300>
+<img src="https://manga.tokyo/wp-content/uploads/2016/08/min-9282.jpg" alt="Yellowknife city symbol Thumbnail" title="Comiket Doujinshi sellers" width=400>
 
 -------
 

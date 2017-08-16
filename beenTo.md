@@ -12,7 +12,6 @@
 <img src="https://upload.wikimedia.org/wikipedia/en/thumb/6/69/City_of_Yellowknife_CoA.svg/1024px-City_of_Yellowknife_CoA.svg.png" alt="Yellowknife city symbol Thumbnail" width=200>
 
 #### Departure -- February 28, 2014
-- - - - X
 
 In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we…
 

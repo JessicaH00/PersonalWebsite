@@ -4,7 +4,7 @@
 
 ## Been To...
 
-<img src="https://photos-3.dropbox.com/t/2/AADlM9Xdzin7eGGLGc0gykJBgD3qU-u6AfpZXf-1vfh6ww/12/208517981/jpeg/32x32/3/1502920800/0/2/Photo%20Aug%2016%2C%201%2011%2025%20PM.jpg/ELKJqp0BGKcPIAcoBw/wOThxxw1_I__GYeCTcNsOIkSKgIDNRCiTN2IDMS_eYQ?dl=0&size=1024x768&size_mode=3" alt="Places that I've been to.">
+<img src="https://photos-3.dropbox.com/t/2/AADlM9Xdzin7eGGLGc0gykJBgD3qU-u6AfpZXf-1vfh6ww/12/208517981/jpeg/32x32/3/1502920800/0/2/Photo%20Aug%2016%2C%201%2011%2025%20PM.jpg/ELKJqp0BGKcPIAcoBw/wOThxxw1_I__GYeCTcNsOIkSKgIDNRCiTN2IDMS_eYQ?dl=0&size=1024x768&size_mode=3" alt="Places that I've been to">
 
 -------
 
@@ -14,6 +14,8 @@
 #### Departure -- February 28, 2014
 
 In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we…
+<img src="https://qph.ec.quoracdn.net/main-qimg-95e96d7c721fd134249602258beb746d" alt="Arrow pointing at Vancouver on map" width=250>
+
 
 After six hours on the plane, we finally got off at the Vancouver International Airport(YVR) of Vancouver. After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
 

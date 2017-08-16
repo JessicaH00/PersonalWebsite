@@ -30,10 +30,20 @@
 
 <img src="" alt="" title="" width=200>
 
+-------
+
+### The Antarctic Kunlun Station (Antarctica)
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>
 
 -------
 
-### Along the James Bay Road, Quebec, Canada
+### Elephant riding (Thailand)
 <img src="" alt="" title="" width=200>
 
 <img src="" alt="" title="" width=200>
@@ -42,3 +52,24 @@
 
 <img src="" alt="" title="" width=200>
 
+-------
+
+### The Festivals (Rio de Janeiro, Brazil)
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>
+
+-------
+
+### Hawaii Volcanoes National Park (Hawaii, United Stats)
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>
+
+<img src="" alt="" title="" width=200>

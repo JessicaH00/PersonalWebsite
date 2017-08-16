@@ -17,6 +17,8 @@
 
 <img src="http://blog.fromjapan.co.jp/en/wp-content/uploads/2015/01/dddojjin.png" alt="Yellowknife city symbol Thumbnail" width=200>
 
+<img src="https://manga.tokyo/wp-content/uploads/2016/08/min-9282.jpg" alt="Yellowknife city symbol Thumbnail" width=200>
+
 -------
 
 ### Along the Autoroute 138, Quebec, Canada

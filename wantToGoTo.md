@@ -9,15 +9,15 @@
 -------
 
 ### Comiket (Tokyo, Japan)
-<img src="https://i.ytimg.com/vi/BrPpbeCMxBg/maxresdefault.jpg" alt="Comiket" title="Comiket" width=200>
+<img src="https://i.ytimg.com/vi/BrPpbeCMxBg/maxresdefault.jpg" alt="Comiket" title="Comiket" width=300>
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/2/26/The_Cosplayers_of_Comiket_69.jpg" alt="Comiket cosplayer" title="Comiket cosplayers" width=200>
+<img src="https://upload.wikimedia.org/wikipedia/commons/2/26/The_Cosplayers_of_Comiket_69.jpg" alt="Comiket cosplayer" title="Comiket cosplayers" width=300>
 
-<img src="https://cdn.cheapoguides.com/wp-content/uploads/sites/2/2015/12/comiket-1138.jpg" alt="Yellowknife city symbol Thumbnail" title="Comiket cosplayer" width=200>
+<img src="https://cdn.cheapoguides.com/wp-content/uploads/sites/2/2015/12/comiket-1138.jpg" alt="Yellowknife city symbol Thumbnail" title="Comiket cosplayer" width=300>
 
-<img src="http://blog.fromjapan.co.jp/en/wp-content/uploads/2015/01/dddojjin.png" alt="Yellowknife city symbol Thumbnail" title="Doujinshis" width=200>
+<img src="http://blog.fromjapan.co.jp/en/wp-content/uploads/2015/01/dddojjin.png" alt="Yellowknife city symbol Thumbnail" title="Doujinshis" width=400>
 
-<img src="https://manga.tokyo/wp-content/uploads/2016/08/min-9282.jpg" alt="Yellowknife city symbol Thumbnail" title="Comiket Doujinshi sellers" width=200>
+<img src="https://manga.tokyo/wp-content/uploads/2016/08/min-9282.jpg" alt="Yellowknife city symbol Thumbnail" title="Comiket Doujinshi sellers" width=300>
 
 -------
 

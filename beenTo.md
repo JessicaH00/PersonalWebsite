@@ -1,4 +1,6 @@
 # Jessica's Travel Blog
+-----------------------
+-----------------------
 
 ### __ [Home](./home.md) &nbsp;&nbsp;&nbsp; [Been To...](./beenTo.md) &nbsp;&nbsp;&nbsp; [Want to Go To...](./wantToGoTo.md)__
 

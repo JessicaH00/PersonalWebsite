@@ -15,9 +15,10 @@
 
 In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we got on the plane and left for our one week trip to Vancouver and Yellowknife.
 
-After six hours on the plane, we finally got off at the Vancouver International Airport(YVR) of Vancouver. This place is a lot warmer than Montreal. After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
-
+After six hours on the plane, we finally got off at the Vancouver International Airport(YVR) of Vancouver. This place is a lot warmer than Montreal.
 <img src="https://qph.ec.quoracdn.net/main-qimg-95e96d7c721fd134249602258beb746d" alt="Arrow pointing at Vancouver on map" title="Arrow pointing at Vancouver on map" width=400>
+
+After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
 
 
 #### March 1, 2014 -- Bike around The Stanley Park

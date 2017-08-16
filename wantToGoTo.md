@@ -22,7 +22,7 @@
 -------
 
 ### The Terracotta Army (Xi'An, ShanXi, China)
-<img src="https://www.q-files.com/images/pages/galleries/545/terracotta-army-3.jpg?201" alt="The Terracotta Army" title="" width=200>
+<img src="https://www.q-files.com/images/pages/galleries/545/terracotta-army-3.jpg?201" alt="The Terracotta Army" title="" width=300>
 
 <img src="" alt="" title="" width=200>
 

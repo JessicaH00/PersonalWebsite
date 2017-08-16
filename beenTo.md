@@ -22,7 +22,7 @@ After six hours on the plane, we finally got off at the Vancouver International 
 
 #### March 1, 2014 -- Bike around The Stanley Park
 
-In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we got on the plane and left for our one week trip to Vancouver and Yellowknife.
+At noon, we had brunch and at around 2:30pm, we rented a tandem bicycle and rode around the Stanley Park. On our way, we saw some pretty neet sites. Most parts of our traile were along the waters of the Burrard Inlet. 
 
 -------
 

@@ -22,11 +22,11 @@
 -------
 
 ### The Terracotta Army (Xi'An, ShanXi, China)
-<img src="https://www.q-files.com/images/pages/galleries/545/terracotta-army-3.jpg?201" alt="The Terracotta Army" title="" width=400>
+<img src="https://www.q-files.com/images/pages/galleries/545/terracotta-army-3.jpg?201" alt="The Terracotta Army" title="The Terracotta Army" width=400>
 
-<img src="" alt="" title="" width=200>
+<img src="http://www.china-family-adventure.com/image-files/xian-terracotta-army-horses.jpg" alt="The Terracotta Army's horses" title="The Terracotta Army's horses" width=300>
 
-<img src="" alt="" title="" width=200>
+<img src="" alt="" title="" width=300>
 
 <img src="" alt="" title="" width=200>
 

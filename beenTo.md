@@ -13,8 +13,9 @@
 
 #### Departure -- February 28, 2014
 - - - - X
-   In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we…
-    After six hours on the plane, we finally got off at the Vancouver International Airport(YVR) of Vancouver. After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
+In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we…
+
+After six hours on the plane, we finally got off at the Vancouver International Airport(YVR) of Vancouver. After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
 
 
 -------

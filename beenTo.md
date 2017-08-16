@@ -15,14 +15,20 @@
 
 In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we got on the plane and left for our one week trip to Vancouver and Yellowknife.
 
-After six hours on the plane, we finally got off at the Vancouver International Airport(YVR) of Vancouver. After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
+After six hours on the plane, we finally got off at the Vancouver International Airport(YVR) of Vancouver. This place is a lot warmer than Montreal. After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
 
 <img src="https://qph.ec.quoracdn.net/main-qimg-95e96d7c721fd134249602258beb746d" alt="Arrow pointing at Vancouver on map" title="Arrow pointing at Vancouver on map" width=400>
 
 
 #### March 1, 2014 -- Bike around The Stanley Park
 
-At noon, we had brunch and at around 2:30pm, we rented a tandem bicycle and rode around the Stanley Park. On our way, we saw some pretty neet sites. Most parts of our traile were along the waters of the Burrard Inlet. 
+The weather that day was very nice. Sunny, a few clouds, warm(around 5&deg;C
+In the morning, we walked around the city and saw Vancouver's oldest church and the Vancouver Art Gallary.
+
+
+At noon, we had brunch and at around 2:30pm, we rented a tandem bicycle and rode around the Stanley Park. On our way, we saw some pretty neet sites. Most parts of our traile were along the waters of the Burrard Inlet.
+
+<img src="https://qph.ec.quoracdn.net/main-qimg-95e96d7c721fd134249602258beb746d" alt="Arrow pointing at Vancouver on map" title="Arrow pointing at Vancouver on map" width=400>
 
 -------
 

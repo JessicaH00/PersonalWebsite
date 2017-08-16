@@ -17,12 +17,12 @@
 
 <img src="http://blog.fromjapan.co.jp/en/wp-content/uploads/2015/01/dddojjin.png" alt="Yellowknife city symbol Thumbnail" title="Doujinshis" width=400>
 
-<img src="https://manga.tokyo/wp-content/uploads/2016/08/min-9282.jpg" alt="Yellowknife city symbol Thumbnail" title="Comiket Doujinshi sellers" width=400>
+<img src="https://manga.tokyo/wp-content/uploads/2016/08/min-9282.jpg" alt="Yellowknife city symbol Thumbnail" title="Comiket Doujinshi sellers" width=300>
 
 -------
 
 ### The Terracotta Army (Xi'An, ShanXi, China)
-<img src="https://www.q-files.com/images/pages/galleries/545/terracotta-army-3.jpg?201" alt="The Terracotta Army" title="" width=300>
+<img src="https://www.q-files.com/images/pages/galleries/545/terracotta-army-3.jpg?201" alt="The Terracotta Army" title="" width=400>
 
 <img src="" alt="" title="" width=200>
 

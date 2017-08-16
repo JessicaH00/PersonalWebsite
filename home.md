@@ -10,6 +10,4 @@
 
 I'm currently a 16 years old secondary schooler at Collège de Montréal in Montreal, Quebec, Canada. 
 
-I was born in HuBei China in the year 2000
-
-Montreal is the city my mom and I chose to move to 
+I was born in HuBei, China in the year 2000, moved to Boston, MA, US in 2008 and now Montreal is the city my mom and I live.

@@ -22,13 +22,19 @@ After six hours on the plane, we finally got off at the Vancouver International 
 
 #### March 1, 2014 -- Bike around The Stanley Park
 
-The weather that day was very nice. Sunny, a few clouds, warm(around 5&deg;C
+The weather that day was very nice. Sunny, a few clouds, warm(around 5&deg;C).
 In the morning, we walked around the city and saw Vancouver's oldest church and the Vancouver Art Gallary.
 
+<img src="https://photos-4.dropbox.com/t/2/AACKzJmTTCGdVVgWKy5ZbAFde2jHOxji9k6fiHveTr48Dg/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%205%2034%2015%20PM.jpg/ELKJqp0BGK0PIAcoBw/VJlHi9TmZnhTNyAi-djgnfADTkzg3D2vauIo6VAdHY0?dl=0&size=1024x768&size_mode=3" alt="Me in front of the Vancouver's oldest Church" width=400>
+<img src="https://photos-2.dropbox.com/t/2/AACrDuNy0d55a607bJPP47b7BoqBaVEoR7VlCkLer_ytxg/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%205%2034%2019%20PM.jpg/ELKJqp0BGK0PIAcoBw/BF_ZiR79Kfds47RLXNt0xl9Ufe-Ac9aahZqNV1OjNe8?dl=0&size=1024x768&size_mode=3" alt="Me in front of the Vancouver Art Gallary" width=400>
 
-At noon, we had brunch and at around 2:30pm, we rented a tandem bicycle and rode around the Stanley Park. On our way, we saw some pretty neet sites. Most parts of our traile were along the waters of the Burrard Inlet.
 
-<img src="https://qph.ec.quoracdn.net/main-qimg-95e96d7c721fd134249602258beb746d" alt="Arrow pointing at Vancouver on map" title="Arrow pointing at Vancouver on map" width=400>
+At noon, we had brunch and at around 2:30pm, we rented a tandem bicycle and rode around the Stanley Park. 
+<img src="https://photos-1.dropbox.com/t/2/AADm1o47vbTZTyF2a-qnT11NGLnn3iEOtix4Wy1TK9NT2g/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%203%2054%2039%20PM.jpg/ELKJqp0BGK0PIAcoBw/BCXRz8MQ2cvj1sk6pD46C4wm-4wKwVroD18jUP-qlu0?dl=0&size=1024x768&size_mode=3" alt="My mom and I on a tandem bike" title="My mom and I on a tandem bike" width=400>
+
+On our way, we saw some pretty neet sites. Most parts of our traile were along the waters of the Burrard Inlet.
+<img src="https://photos-1.dropbox.com/t/2/AADAXhP7m-rWrymm-PzXSkSrZssUMDlGh43gIfYLxPtCBw/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%203%2055%2002%20PM.jpg/ELKJqp0BGK0PIAcoBw/FjlRLF4zbjmxF8WqoCtS5B9Mg4c8DhC1ojx0eAf8S0M?dl=0&size=1024x768&size_mode=3" alt="" width=400>
+<img src="https://photos-3.dropbox.com/t/2/AAAB1XvVjg_Ti5bSIxz3vaequiXXAC_-WymjZqjeuF2XEg/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%205%2023%2012%20PM.jpg/ELKJqp0BGK0PIAcoBw/pJDzXHgfpoDCZwkVhNBdzp9qGxwt1GTw4qvrNeoPbB8?dl=0&size=1024x768&size_mode=3" alt="" width=400>
 
 -------
 

@@ -12,8 +12,8 @@
 -------
 
 ### Along the Autoroute 138, Quebec, Canada
-<img src="http://www.autoroutes.info/autoroutes/138.gif" alt="" width=200>
+<img src="http://www.autoroutes.info/autoroutes/138.gif" alt="" width=100>
 -------
 
 ### Along the James Bay Road, Quebec, Canada
-<img src="http://gingerich.net/wp-content/uploads/Trips/2012%20James%20Bay/Welcome-sign.jpg" alt="" width=200>
+<img src="http://gingerich.net/wp-content/uploads/Trips/2012%20James%20Bay/Welcome-sign.jpg" alt="" width=300>

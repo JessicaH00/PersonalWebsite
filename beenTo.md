@@ -8,12 +8,12 @@
 -------
 
 ### Yellowknife, Northwest Territories, Canada
-![Yellowknife](https://upload.wikimedia.org/wikipedia/en/thumb/6/69/City_of_Yellowknife_CoA.svg/1024px-City_of_Yellowknife_CoA.svg.png)
+<img src="https://upload.wikimedia.org/wikipedia/en/thumb/6/69/City_of_Yellowknife_CoA.svg/1024px-City_of_Yellowknife_CoA.svg.png" alt="" width=600px>
 -------
 
 ### Along the Autoroute 138, Quebec, Canada
-![Autoroute 138](http://www.autoroutes.info/autoroutes/138.gif)
+<img src="http://www.autoroutes.info/autoroutes/138.gif" alt="" width=600px>
 -------
 
 ### Along the James Bay Road, Quebec, Canada
-![James Bay Road](http://gingerich.net/wp-content/uploads/Trips/2012%20James%20Bay/Welcome-sign.jpg)
+<img src="http://gingerich.net/wp-content/uploads/Trips/2012%20James%20Bay/Welcome-sign.jpg" alt="" width=600px>

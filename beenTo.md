@@ -48,14 +48,15 @@ We had our dinner sitting on a beach we passed looking out to the water.
 #### Sunday, March 2, 2014 -- On the island of Victoria
 
 :cloud: Today's weather is a bit humide compared to yesterday, more cloudy, but still warm(around 2&deg;C to 4&deg;C).
- Before taking the ferry to Victoria, we walked around the area and vsited the The Empress in Richmond.
+Before taking the ferry to Victoria, we walked around the area and vsited the The Empress in Richmond.
  
- <img src="https://www.dropbox.com/home?preview=Photo+Aug+16%2C+6+43+59+PM.jpg" alt="The Empress in Richmond" width=400>
+<img src="https://photos-6.dropbox.com/t/2/AABvZfntujVYPSSJ03cU1R8xfIzeBbV4wzm70Gd_aBi_pw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2016%2C%206%2043%2059%20PM.jpg/ELKJqp0BGL0PIAcoBw/J17t1iuZ0jcmilS3HPO2xOrZzRieAUqHZfcOwqIDFnE?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=400>
+<img src="https://photos-6.dropbox.com/t/2/AABw2HEdFuvsJln1F9lHWkSRiCltqLlytc1bi2C4Iefw4g/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2016%2C%206%2045%2045%20PM.jpg/ELKJqp0BGL0PIAcoBw/SbTqjaxqDJSl8KkN0dmGT1P_qoO-2dZdpP5BCCoCY_4?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=400>
  
- At the dock, we needed to wait half an hour, but we decided to sty around the dock.
+At the dock, we needed to wait half an hour, but we decided to sty around the dock.
  
- <img src="https://photos-6.dropbox.com/t/2/AADCZWL4Fg95RwtkJqo8K9HoL1t_obZDYGKSz-_lseDATg/12/208517981/jpeg/32x32/1/_/1/2/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg/ELKJqp0BGL0PIAcoBw/55RwXPVozx5vi1DR2hQysnviwjBnIYmq1jWIhRtjx0w?size=1024x768&size_mode=3" alt="Picture of ducks on water" width=400>
-
+<img src="https://photos-1.dropbox.com/t/2/AAAaYWvoyDdwAL_jSYkD572gy1SX3M21TV9c6ceXfuXwUg/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg/ELKJqp0BGL0PIAcoBw/55RwXPVozx5vi1DR2hQysnviwjBnIYmq1jWIhRtjx0w?dl=0&size=1024x768&size_mode=3" alt="Picture of ducks on water" width=400>
+<img src="https://photos-4.dropbox.com/t/2/AAAMHKyHdkHOQmtdpoRxBTRe1LnJ08sqr6DQ91HSjempmw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2011%20PM.jpg/ELKJqp0BGL0PIAcoBw/ihCOdZSgJjumjMvYKFx7ViJot3FZhqIU90-zHTOlHIA?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=400>
 Victoria Butterfly Gardens
 
 :cherry_blossom: :herb: :tulip: :seedling:

@@ -19,7 +19,6 @@ After six hours on the plane, we finally got off at the Vancouver International 
 <img src="https://qph.ec.quoracdn.net/main-qimg-95e96d7c721fd134249602258beb746d" alt="Arrow pointing at Vancouver on map" title="Arrow pointing at Vancouver on map" width=500>
 
 After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
-
 :yum:
 -
 

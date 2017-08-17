@@ -54,7 +54,7 @@ We had our dinner sitting on a beach we passed looking out to the water.
  
  At the dock, we needed to wait half an hour, but we decided to sty around the dock.
  
- <img src="https://www.dropbox.com/s/x8hynjw90gfnnnx/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg?dl=0" alt="Picture of ducks on water" width=400>
+ <img src="https://photos-6.dropbox.com/t/2/AADCZWL4Fg95RwtkJqo8K9HoL1t_obZDYGKSz-_lseDATg/12/208517981/jpeg/32x32/1/_/1/2/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg/ELKJqp0BGL0PIAcoBw/55RwXPVozx5vi1DR2hQysnviwjBnIYmq1jWIhRtjx0w?size=1024x768&size_mode=3" alt="Picture of ducks on water" width=400>
 
 Victoria Butterfly Gardens
 

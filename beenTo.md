@@ -37,7 +37,7 @@ A bit before noon, we had brunch and at around 2:30pm, we rented a tandem bicycl
 
 On our way, we saw some pretty neet sites. Most parts of our traile were along the waters of the Burrard Inlet.
 <img src="https://photos-1.dropbox.com/t/2/AADAXhP7m-rWrymm-PzXSkSrZssUMDlGh43gIfYLxPtCBw/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%203%2055%2002%20PM.jpg/ELKJqp0BGK0PIAcoBw/FjlRLF4zbjmxF8WqoCtS5B9Mg4c8DhC1ojx0eAf8S0M?dl=0&size=1024x768&size_mode=3" alt="" width=400>
-<img src="https://photos-3.dropbox.com/t/2/AAAB1XvVjg_Ti5bSIxz3vaequiXXAC_-WymjZqjeuF2XEg/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%205%2023%2012%20PM.jpg/ELKJqp0BGK0PIAcoBw/pJDzXHgfpoDCZwkVhNBdzp9qGxwt1GTw4qvrNeoPbB8?dl=0&size=1024x768&size_mode=3" alt="" width=400>
+<img src="https://photos-3.dropbox.com/t/2/AAAB1XvVjg_Ti5bSIxz3vaequiXXAC_-WymjZqjeuF2XEg/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%205%2023%2012%20PM.jpg/ELKJqp0BGK0PIAcoBw/pJDzXHgfpoDCZwkVhNBdzp9qGxwt1GTw4qvrNeoPbB8?dl=0&size=1024x768&size_mode=3" alt="Picture of ducks on water" width=400>
 
 We had our dinner sitting on a beach we passed looking out to the water.
 
@@ -50,7 +50,7 @@ We had our dinner sitting on a beach we passed looking out to the water.
 :cloud: Today's weather is a bit humide compared to yesterday, more cloudy, but still warm(around 2&deg;C to 4&deg;C).
  Before taking the ferry to Victoria, we walked around the area and vsited the The Empress in Richmond.
  
- <img src="https://photos-2.dropbox.com/t/2/AADgk3B0ypOwudhDz1JPPrUKmZgBY_hGWlhpRWVfzhZyNg/12/208517981/jpeg/32x32/1/_/1/2/Photo%20Aug%2016%2C%206%2043%2059%20PM.jpg/ELKJqp0BGLgPIAcoBw/J17t1iuZ0jcmilS3HPO2xOrZzRieAUqHZfcOwqIDFnE?size=1024x768&size_mode=3" alt="The Empress in Richmond" width=400>
+ <img src="https://www.dropbox.com/home?preview=Photo+Aug+16%2C+6+43+59+PM.jpg" alt="The Empress in Richmond" width=400>
 
 Victoria Butterfly Gardens
 The Empress Richmond

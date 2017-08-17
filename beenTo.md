@@ -51,7 +51,7 @@ We had our dinner sitting on a beach we passed looking out to the water.
 Before taking the ferry to Victoria, we walked around the area and vsited the The Empress in Richmond.
  
 <img src="https://photos-6.dropbox.com/t/2/AABvZfntujVYPSSJ03cU1R8xfIzeBbV4wzm70Gd_aBi_pw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2016%2C%206%2043%2059%20PM.jpg/ELKJqp0BGL0PIAcoBw/J17t1iuZ0jcmilS3HPO2xOrZzRieAUqHZfcOwqIDFnE?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=400>
-<img src="https://photos-6.dropbox.com/t/2/AABw2HEdFuvsJln1F9lHWkSRiCltqLlytc1bi2C4Iefw4g/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2016%2C%206%2045%2045%20PM.jpg/ELKJqp0BGL0PIAcoBw/SbTqjaxqDJSl8KkN0dmGT1P_qoO-2dZdpP5BCCoCY_4?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=400>
+<img src="https://photos-6.dropbox.com/t/2/AABw2HEdFuvsJln1F9lHWkSRiCltqLlytc1bi2C4Iefw4g/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2016%2C%206%2045%2045%20PM.jpg/ELKJqp0BGL0PIAcoBw/SbTqjaxqDJSl8KkN0dmGT1P_qoO-2dZdpP5BCCoCY_4?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=500>
  
 At the dock, we needed to wait half an hour, but we decided to sty around the dock.
  

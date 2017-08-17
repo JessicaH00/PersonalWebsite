@@ -51,9 +51,12 @@ We had our dinner sitting on a beach we passed looking out to the water.
  Before taking the ferry to Victoria, we walked around the area and vsited the The Empress in Richmond.
  
  <img src="https://www.dropbox.com/home?preview=Photo+Aug+16%2C+6+43+59+PM.jpg" alt="The Empress in Richmond" width=400>
+ 
+ At the dock, we needed to wait half an hour, but we decided to sty around the dock.
+ 
+ <img src="https://www.dropbox.com/s/x8hynjw90gfnnnx/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg?dl=0" alt="Picture of ducks on water" width=400>
 
 Victoria Butterfly Gardens
-The Empress Richmond
 
 :cherry_blossom: :herb: :tulip: :seedling:
 -

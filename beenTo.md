@@ -48,7 +48,9 @@ We had our dinner sitting on a beach we passed looking out to the water.
 #### Sunday, March 2, 2014 -- On the island of Victoria
 
 :cloud: Today's weather is a bit humide compared to yesterday, more cloudy, but still warm(around 2&deg;C to 4&deg;C).
-
+ Before taking the ferry to Victoria, we walked around the area and vsited the The Empress in Richmond.
+ 
+ <img src="https://photos-3https://photos-2.dropbox.com/t/2/AADgk3B0ypOwudhDz1JPPrUKmZgBY_hGWlhpRWVfzhZyNg/12/208517981/jpeg/32x32/1/_/1/2/Photo%20Aug%2016%2C%206%2043%2059%20PM.jpg/ELKJqp0BGLgPIAcoBw/J17t1iuZ0jcmilS3HPO2xOrZzRieAUqHZfcOwqIDFnE?size=1024x768&size_mode=3.dropbox.com/t/2/AAAB1XvVjg_Ti5bSIxz3vaequiXXAC_-WymjZqjeuF2XEg/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%205%2023%2012%20PM.jpg/ELKJqp0BGK0PIAcoBw/pJDzXHgfpoDCZwkVhNBdzp9qGxwt1GTw4qvrNeoPbB8?dl=0&size=1024x768&size_mode=3" alt="" width=400>
 
 Victoria Butterfly Gardens
 The Empress Richmond

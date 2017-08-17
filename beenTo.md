@@ -20,7 +20,7 @@ After six hours on the plane, we finally got off at the Vancouver International 
 
 After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
 
-:smile_cat:
+:yum:
 -
 
 

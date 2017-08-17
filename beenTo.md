@@ -55,8 +55,8 @@ Before taking the ferry to Victoria, we walked around the area and vsited the Th
  
 At the dock, we needed to wait half an hour, but we decided to sty around the dock.
  
-<img src="https://photos-1.dropbox.com/t/2/AAAaYWvoyDdwAL_jSYkD572gy1SX3M21TV9c6ceXfuXwUg/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg/ELKJqp0BGL0PIAcoBw/55RwXPVozx5vi1DR2hQysnviwjBnIYmq1jWIhRtjx0w?dl=0&size=1024x768&size_mode=3" alt="Picture of ducks on water" width=400>
-<img src="https://photos-4.dropbox.com/t/2/AAAMHKyHdkHOQmtdpoRxBTRe1LnJ08sqr6DQ91HSjempmw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2011%20PM.jpg/ELKJqp0BGL0PIAcoBw/ihCOdZSgJjumjMvYKFx7ViJot3FZhqIU90-zHTOlHIA?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=400>
+<img src="https://photos-1.dropbox.com/t/2/AAAaYWvoyDdwAL_jSYkD572gy1SX3M21TV9c6ceXfuXwUg/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg/ELKJqp0BGL0PIAcoBw/55RwXPVozx5vi1DR2hQysnviwjBnIYmq1jWIhRtjx0w?dl=0&size=1024x768&size_mode=3" alt="Picture of ducks on water" width=500>
+<img src="https://photos-4.dropbox.com/t/2/AAAMHKyHdkHOQmtdpoRxBTRe1LnJ08sqr6DQ91HSjempmw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2011%20PM.jpg/ELKJqp0BGL0PIAcoBw/ihCOdZSgJjumjMvYKFx7ViJot3FZhqIU90-zHTOlHIA?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=300>
 Victoria Butterfly Gardens
 
 :cherry_blossom: :herb: :tulip: :seedling:

@@ -41,6 +41,9 @@ On our way, we saw some pretty neet sites. Most parts of our traile were along t
 
 We had our dinner sitting on a beach we passed looking out to the water.
 
+:bicyclist: :bento::ocean:
+-
+
 
 #### Sunday, March 2, 2014 -- On the island of Victoria
 

@@ -11,7 +11,7 @@
 ### Yellowknife, Northwest Territories, Canada
 <img src="https://upload.wikimedia.org/wikipedia/en/thumb/6/69/City_of_Yellowknife_CoA.svg/1024px-City_of_Yellowknife_CoA.svg.png" alt="Yellowknife city symbol Thumbnail" title="Yellowknife city symbol Thumbnail" width=200>
 
-#### February 28, 2014 -- Departure
+#### Friday, February 28, 2014 -- Departure
 
 In the morning, my mom and I left for the Pierre Elliott Trudeau International Airport(YUL) of Montreal. Two hours after, we got on the plane and left for our one week trip to Vancouver and Yellowknife.
 
@@ -21,15 +21,15 @@ After six hours on the plane, we finally got off at the Vancouver International 
 After putting down our luggages at the hotel, we had dinner with mom’s friends from high school. They gave us some suggestions on what to do for the next two days, before we leave for Yellowknife, Northwest Territories, on March 3rd.
 
 
-#### March 1, 2014 -- Bike around The Stanley Park
+#### saturday, March 1, 2014 -- Bike around The Stanley Park
 
-The weather is very nice, sunny, a few clouds, warm(around 0&deg;C to 3&deg;C).
+:sunny: The weather is very nice, sunny, a few clouds, warm(around 0&deg;C to 3&deg;C).
 In the morning, we walked around the city and saw Vancouver's oldest church and the Vancouver Art Gallary.
 <img src="https://photos-4.dropbox.com/t/2/AACKzJmTTCGdVVgWKy5ZbAFde2jHOxji9k6fiHveTr48Dg/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%205%2034%2015%20PM.jpg/ELKJqp0BGK0PIAcoBw/VJlHi9TmZnhTNyAi-djgnfADTkzg3D2vauIo6VAdHY0?dl=0&size=1024x768&size_mode=3" alt="Me in front of the Vancouver's oldest Church" width=400>
 <img src="https://photos-2.dropbox.com/t/2/AACrDuNy0d55a607bJPP47b7BoqBaVEoR7VlCkLer_ytxg/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%205%2034%2019%20PM.jpg/ELKJqp0BGK0PIAcoBw/BF_ZiR79Kfds47RLXNt0xl9Ufe-Ac9aahZqNV1OjNe8?dl=0&size=1024x768&size_mode=3" alt="Me in front of the Vancouver Art Gallary" width=400>
 
 
-At noon, we had brunch and at around 2:30pm, we rented a tandem bicycle and rode around the Stanley Park.
+A bit before noon, we had brunch and at around 2:30pm, we rented a tandem bicycle and rode around the Stanley Park.
 <img src="https://photos-1.dropbox.com/t/2/AADm1o47vbTZTyF2a-qnT11NGLnn3iEOtix4Wy1TK9NT2g/12/208517981/jpeg/32x32/3/1502935200/0/2/Photo%20Aug%2016%2C%203%2054%2039%20PM.jpg/ELKJqp0BGK0PIAcoBw/BCXRz8MQ2cvj1sk6pD46C4wm-4wKwVroD18jUP-qlu0?dl=0&size=1024x768&size_mode=3" alt="My mom and I on a tandem bike" title="My mom and I on a tandem bike" width=400>
 
 On our way, we saw some pretty neet sites. Most parts of our traile were along the waters of the Burrard Inlet.
@@ -39,17 +39,20 @@ On our way, we saw some pretty neet sites. Most parts of our traile were along t
 We had our dinner sitting on a beach we passed looking out to the water.
 
 
-#### March 2, 2014 -- On the island of Victoria
+#### Sunday, March 2, 2014 -- On the island of Victoria
 
-Today's weather is a bit humide compared to yesterday, more cloudy, but still warm(around 2&deg;C to 4&deg;C).
-In the morning, we walked around the city and saw Vancouver's oldest church and the Vancouver Art Gallary.
+:cloud: Today's weather is a bit humide compared to yesterday, more cloudy, but still warm(around 2&deg;C to 4&deg;C).
+
+
+Victoria Butterfly Gardens
+The Empress Richmond
 
 -------
 
 ### Along the Autoroute 138, Quebec, Canada
 <img src="http://www.autoroutes.info/autoroutes/138.gif" alt="Autoroute 138 sigh of Quebec" title="Autoroute 138 sigh of Quebec" width=100>
 
-:anguished:
+
 
 -------
 

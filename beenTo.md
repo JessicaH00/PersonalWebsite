@@ -55,8 +55,14 @@ Before taking the ferry to Victoria, we walked around the area and vsited the Th
  
 At the dock, we needed to wait half an hour, but we decided to sty around the dock.
  
-<img src="https://photos-1.dropbox.com/t/2/AAAaYWvoyDdwAL_jSYkD572gy1SX3M21TV9c6ceXfuXwUg/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg/ELKJqp0BGL0PIAcoBw/55RwXPVozx5vi1DR2hQysnviwjBnIYmq1jWIhRtjx0w?dl=0&size=1024x768&size_mode=3" alt="Picture of ducks on water" width=500>
-<img src="https://photos-4.dropbox.com/t/2/AAAMHKyHdkHOQmtdpoRxBTRe1LnJ08sqr6DQ91HSjempmw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2011%20PM.jpg/ELKJqp0BGL0PIAcoBw/ihCOdZSgJjumjMvYKFx7ViJot3FZhqIU90-zHTOlHIA?dl=0&size=1024x768&size_mode=3" alt="The Empress in Richmond" width=300>
+<img src="https://photos-1.dropbox.com/t/2/AAAaYWvoyDdwAL_jSYkD572gy1SX3M21TV9c6ceXfuXwUg/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg/ELKJqp0BGL0PIAcoBw/55RwXPVozx5vi1DR2hQysnviwjBnIYmq1jWIhRtjx0w?dl=0&size=1024x768&size_mode=3" alt="the dock" width=500>
+<img src="https://photos-4.dropbox.com/t/2/AAAMHKyHdkHOQmtdpoRxBTRe1LnJ08sqr6DQ91HSjempmw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2011%20PM.jpg/ELKJqp0BGL0PIAcoBw/ihCOdZSgJjumjMvYKFx7ViJot3FZhqIU90-zHTOlHIA?dl=0&size=1024x768&size_mode=3" alt="" width=300>
+
+The ferry took two hours! We got on the ferry at 11am and arrived in Victoria at 1pm.
+
+<img src="https://photos-3.dropbox.com/t/2/AAA6d7NiGyLjv6qt5znCBjVkKvLDdN6WOSJm6Y6j7DwUwg/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2048%20PM.jpg/ELKJqp0BGL0PIAcoBw/HE-VrFd7sKcIrS9sdEpt8TA1jkqIADg1GHLLSL96Jnk?dl=0&size=1024x768&size_mode=3" alt="the dock" width=500>
+<img src="https://photos-4.dropbox.com/t/2/AAApgGlcO60nTarJrC-Zo-6Bf-yMkPnszbVnOSHDRujUlQ/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2053%20PM.jpg/ELKJqp0BGL0PIAcoBw/mL2doYyQ69IJ21SWVoxmWNlxhIn6FLreetXmD6Df_eQ?dl=0&size=1024x768&size_mode=3" alt="the dock" width=500>
+
 Victoria Butterfly Gardens
 
 :cherry_blossom: :herb: :tulip: :seedling:

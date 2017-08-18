@@ -67,10 +67,10 @@ The ferry took two hours! We got on the ferry at 11am and arrived in Victoria at
 After getting off the ferry, we took a bus to the Victoria Butterfly Gardens. It's a botanic garden with 3 major classes of exibitions: the animals, the insects and the garden species. We only had the time to see some garden species.
 
 <img src="https://photos-3.dropbox.com/t/2/AAAP_ONulzOM9YGNEPNOhgyUibXtmLGChSaOpVaZag44Uw/12/208517981/jpeg/32x32/3/1503082800/0/2/Photo%20Aug%2016%2C%206%2044%2032%20PM.jpg/ELKJqp0BGL4PIAcoBw/FNCzXLHLDce6ZAfcPrCt-DyYEb0sbwQCVvl1WsA3OKY?dl=0&size=1024x768&size_mode=3" alt="" width=500>
-<img src="https://photos-1.dropbox.com/t/2/AAAsfYx9p5N7Ub0rguHl3M6y-jgrSDjKvKe5SGw8WtEInw/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2016%2C%206%2045%2028%20PM.jpg/ELKJqp0BGL4PIAcoBw/YOqZiPjAFJ1JlpFXOGcBrdFZ3FuYK3Wgr9GVkBs-l4U?dl=0&size=1024x768&size_mode=3" alt="" width=350>
+<img src="https://photos-1.dropbox.com/t/2/AAAsfYx9p5N7Ub0rguHl3M6y-jgrSDjKvKe5SGw8WtEInw/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2016%2C%206%2045%2028%20PM.jpg/ELKJqp0BGL4PIAcoBw/YOqZiPjAFJ1JlpFXOGcBrdFZ3FuYK3Wgr9GVkBs-l4U?dl=0&size=1024x768&size_mode=3" alt="" width=300>
 <img src="https://photos-6.dropbox.com/t/2/AADC-SHkLDjXP3wgTAmNYgkiS1KuUpKnUKkvlPzn6J6hAg/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2016%2C%206%2045%2022%20PM.jpg/ELKJqp0BGL4PIAcoBw/hgDubwT915U_X7ad-VkISR7gf47O4Jy1gyJe8ejbX6w?dl=0&size=1024x768&size_mode=3" alt="" width=300>
-<img src="https://photos-1.dropbox.com/t/2/AAAbsvN3HnC-mSUz5SsMk7VLL17uYRIdebU4-CS68y_GIA/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2018%2C%2010%2057%2023%20AM.jpg/ELKJqp0BGL4PIAcoBw/2mBJodwTSjn2OjfUi8-vejGSUK4wEjnnZpsfGtWOyak?dl=0&size=1024x768&size_mode=3" alt="" width=400>
-<img src="https://photos-5.dropbox.com/t/2/AABbaG3zr1YoBIrRP1v3KMT7bL5Yd_YSDr7NyXJGAdmVBA/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2016%2C%206%2045%2011%20PM.jpg/ELKJqp0BGL4PIAcoBw/prs86hDugGcOyS2ix7XqrtU66zdGoG1e96iNFNiOMpI?dl=0&size=1024x768&size_mode=3" alt="" width=500>
+<img src="https://photos-1.dropbox.com/t/2/AAAbsvN3HnC-mSUz5SsMk7VLL17uYRIdebU4-CS68y_GIA/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2018%2C%2010%2057%2023%20AM.jpg/ELKJqp0BGL4PIAcoBw/2mBJodwTSjn2OjfUi8-vejGSUK4wEjnnZpsfGtWOyak?dl=0&size=1024x768&size_mode=3" alt="" width=350>
+<img src="https://photos-5.dropbox.com/t/2/AABbaG3zr1YoBIrRP1v3KMT7bL5Yd_YSDr7NyXJGAdmVBA/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2016%2C%206%2045%2011%20PM.jpg/ELKJqp0BGL4PIAcoBw/prs86hDugGcOyS2ix7XqrtU66zdGoG1e96iNFNiOMpI?dl=0&size=1024x768&size_mode=3" alt="" width=550>
 
 :cherry_blossom: :herb: :tulip: :seedling:
 -

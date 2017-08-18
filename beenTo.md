@@ -84,6 +84,7 @@ Today, we will be taking a 6 hour flight to Yellowknife in the Northwest Territo
 
 After six hours of flight, we landed at the Yellowknife Airport(YZF). We were wondering why the flight attendants were wearing winter jackets and than, the plane hatch opened... The plane just landed on the runway! There was a portale staircase at the hatch and the door to the airport building just 20 to 30 meters away, but it was really cold. -10&deg;C and I was in T-shirt and jeans.
 > Note to self: Always look at what the flight attendants are wearing before getting out.
+
 The 
 
 -------

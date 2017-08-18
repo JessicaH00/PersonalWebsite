@@ -56,15 +56,21 @@ Before taking the ferry to Victoria, we walked around the area and vsited the Th
 At the dock, we needed to wait half an hour, but we decided to sty around the dock.
  
 <img src="https://photos-1.dropbox.com/t/2/AAAaYWvoyDdwAL_jSYkD572gy1SX3M21TV9c6ceXfuXwUg/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2009%20PM.jpg/ELKJqp0BGL0PIAcoBw/55RwXPVozx5vi1DR2hQysnviwjBnIYmq1jWIhRtjx0w?dl=0&size=1024x768&size_mode=3" alt="the dock" width=550>
-<img src="https://photos-4.dropbox.com/t/2/AAAMHKyHdkHOQmtdpoRxBTRe1LnJ08sqr6DQ91HSjempmw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2011%20PM.jpg/ELKJqp0BGL0PIAcoBw/ihCOdZSgJjumjMvYKFx7ViJot3FZhqIU90-zHTOlHIA?dl=0&size=1024x768&size_mode=3" alt="" width=300>
+<img src="https://photos-4.dropbox.com/t/2/AAAMHKyHdkHOQmtdpoRxBTRe1LnJ08sqr6DQ91HSjempmw/12/208517981/jpeg/32x32/3/1503010800/0/2/Photo%20Aug%2017%2C%201%2057%2011%20PM.jpg/ELKJqp0BGL0PIAcoBw/ihCOdZSgJjumjMvYKFx7ViJot3FZhqIU90-zHTOlHIA?dl=0&size=1024x768&size_mode=3" alt="" width=350>
 
 The ferry took two hours! We got on the ferry at 11am and arrived in Victoria at 1pm.
 
 <img src="https://photos-3.dropbox.com/t/2/AAA6d7NiGyLjv6qt5znCBjVkKvLDdN6WOSJm6Y6j7DwUwg/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2048%20PM.jpg/ELKJqp0BGL0PIAcoBw/HE-VrFd7sKcIrS9sdEpt8TA1jkqIADg1GHLLSL96Jnk?dl=0&size=1024x768&size_mode=3" alt="the dock" width=400>
-<img src="https://photos-4.dropbox.com/t/2/AAApgGlcO60nTarJrC-Zo-6Bf-yMkPnszbVnOSHDRujUlQ/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2053%20PM.jpg/ELKJqp0BGL0PIAcoBw/mL2doYyQ69IJ21SWVoxmWNlxhIn6FLreetXmD6Df_eQ?dl=0&size=1024x768&size_mode=3" alt="the dock" width=300>
+<img src="https://photos-4.dropbox.com/t/2/AAApgGlcO60nTarJrC-Zo-6Bf-yMkPnszbVnOSHDRujUlQ/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2053%20PM.jpg/ELKJqp0BGL0PIAcoBw/mL2doYyQ69IJ21SWVoxmWNlxhIn6FLreetXmD6Df_eQ?dl=0&size=1024x768&size_mode=3" alt="the dock" width=350>
 <img src="https://photos-1.dropbox.com/t/2/AAC4NTEK4w6NQSBd5VX7ABB_SRWuYgphCFKfxj3-URQYTQ/12/208517981/jpeg/32x32/3/1503082800/0/2/Photo%20Aug%2016%2C%207%2006%2013%20PM.jpg/ELKJqp0BGL0PIAcoBw/sUle03uhxurmEwA_dTQ3LGY3KWOqO06jmUss6HTgz8E?dl=0&size=1024x768&size_mode=3" alt="" width=400>
 
-Victoria Butterfly Gardens
+After getting off the ferry, we took a bus to the Victoria Butterfly Gardens. It's a botanic garden with 3 major classes of exibitions: the animals, the insects and the garden species. We only had the time to see some garden species.
+
+<img src="https://photos-3.dropbox.com/t/2/AAAP_ONulzOM9YGNEPNOhgyUibXtmLGChSaOpVaZag44Uw/12/208517981/jpeg/32x32/3/1503082800/0/2/Photo%20Aug%2016%2C%206%2044%2032%20PM.jpg/ELKJqp0BGL4PIAcoBw/FNCzXLHLDce6ZAfcPrCt-DyYEb0sbwQCVvl1WsA3OKY?dl=0&size=1024x768&size_mode=3" alt="" width=100>
+<img src="https://photos-1.dropbox.com/t/2/AAAsfYx9p5N7Ub0rguHl3M6y-jgrSDjKvKe5SGw8WtEInw/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2016%2C%206%2045%2028%20PM.jpg/ELKJqp0BGL4PIAcoBw/YOqZiPjAFJ1JlpFXOGcBrdFZ3FuYK3Wgr9GVkBs-l4U?dl=0&size=1024x768&size_mode=3" alt="" width=100>
+<img src="https://photos-6.dropbox.com/t/2/AADC-SHkLDjXP3wgTAmNYgkiS1KuUpKnUKkvlPzn6J6hAg/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2016%2C%206%2045%2022%20PM.jpg/ELKJqp0BGL4PIAcoBw/hgDubwT915U_X7ad-VkISR7gf47O4Jy1gyJe8ejbX6w?dl=0&size=1024x768&size_mode=3" alt="" width=100>
+<img src="https://photos-1.dropbox.com/t/2/AAAbsvN3HnC-mSUz5SsMk7VLL17uYRIdebU4-CS68y_GIA/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2018%2C%2010%2057%2023%20AM.jpg/ELKJqp0BGL4PIAcoBw/2mBJodwTSjn2OjfUi8-vejGSUK4wEjnnZpsfGtWOyak?dl=0&size=1024x768&size_mode=3" alt="" width=100>
+<img src="" alt="" width=100>
 
 :cherry_blossom: :herb: :tulip: :seedling:
 -
@@ -74,6 +80,7 @@ Victoria Butterfly Gardens
 ### Along the Autoroute 138, Quebec, Canada
 <img src="http://www.autoroutes.info/autoroutes/138.gif" alt="Autoroute 138 sigh of Quebec" title="Autoroute 138 sigh of Quebec" width=100>
 
+<img src="" alt="" width=100>
 
 
 -------
@@ -81,7 +88,7 @@ Victoria Butterfly Gardens
 ### Along the James Bay Road, Quebec, Canada
 <img src="http://gingerich.net/wp-content/uploads/Trips/2012%20James%20Bay/Welcome-sign.jpg" alt="Picture of Bienvenu à la Route de la James Bay, meaning Welcome to the James Bay Road" title="Picture of Bienvenu à la Route de la James Bay, meaning Welcome to the James Bay Road" width=300>
 
-
+<img src="" alt="" width=100>
 
 
 

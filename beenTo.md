@@ -60,8 +60,8 @@ At the dock, we needed to wait half an hour, but we decided to sty around the do
 
 The ferry took two hours! We got on the ferry at 11am and arrived in Victoria at 1pm.
 
-<img src="https://photos-3.dropbox.com/t/2/AAA6d7NiGyLjv6qt5znCBjVkKvLDdN6WOSJm6Y6j7DwUwg/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2048%20PM.jpg/ELKJqp0BGL0PIAcoBw/HE-VrFd7sKcIrS9sdEpt8TA1jkqIADg1GHLLSL96Jnk?dl=0&size=1024x768&size_mode=3" alt="the dock" width=500>
-<img src="https://photos-4.dropbox.com/t/2/AAApgGlcO60nTarJrC-Zo-6Bf-yMkPnszbVnOSHDRujUlQ/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2053%20PM.jpg/ELKJqp0BGL0PIAcoBw/mL2doYyQ69IJ21SWVoxmWNlxhIn6FLreetXmD6Df_eQ?dl=0&size=1024x768&size_mode=3" alt="the dock" width=500>
+<img src="https://photos-3.dropbox.com/t/2/AAA6d7NiGyLjv6qt5znCBjVkKvLDdN6WOSJm6Y6j7DwUwg/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2048%20PM.jpg/ELKJqp0BGL0PIAcoBw/HE-VrFd7sKcIrS9sdEpt8TA1jkqIADg1GHLLSL96Jnk?dl=0&size=1024x768&size_mode=3" alt="the dock" width=400>
+<img src="https://photos-4.dropbox.com/t/2/AAApgGlcO60nTarJrC-Zo-6Bf-yMkPnszbVnOSHDRujUlQ/12/208517981/jpeg/32x32/3/1503032400/0/2/Photo%20Aug%2016%2C%206%2043%2053%20PM.jpg/ELKJqp0BGL0PIAcoBw/mL2doYyQ69IJ21SWVoxmWNlxhIn6FLreetXmD6Df_eQ?dl=0&size=1024x768&size_mode=3" alt="the dock" width=400>
 
 Victoria Butterfly Gardens
 

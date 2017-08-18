@@ -72,8 +72,19 @@ After getting off the ferry, we took a bus to the Victoria Butterfly Gardens. It
 <img src="https://photos-1.dropbox.com/t/2/AAAbsvN3HnC-mSUz5SsMk7VLL17uYRIdebU4-CS68y_GIA/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2018%2C%2010%2057%2023%20AM.jpg/ELKJqp0BGL4PIAcoBw/2mBJodwTSjn2OjfUi8-vejGSUK4wEjnnZpsfGtWOyak?dl=0&size=1024x768&size_mode=3" alt="" width=350>
 <img src="https://photos-5.dropbox.com/t/2/AABbaG3zr1YoBIrRP1v3KMT7bL5Yd_YSDr7NyXJGAdmVBA/12/208517981/jpeg/32x32/3/1503086400/0/2/Photo%20Aug%2016%2C%206%2045%2011%20PM.jpg/ELKJqp0BGL4PIAcoBw/prs86hDugGcOyS2ix7XqrtU66zdGoG1e96iNFNiOMpI?dl=0&size=1024x768&size_mode=3" alt="" width=550>
 
+When we finally got back to the hotel, it was almost 6:30pm. We went strait to bed and prepared for tomorow's 
+
 :cherry_blossom: :herb: :tulip: :seedling:
 -
+
+
+#### Monday, March 3, 2014 -- Arrival
+
+Today, we will be taking a 6 hour flight to Yellowknife in the Northwest Territories, Canada. When we got to the airport, we were very surprised by the amount of time it took to bord the plane. TEN MINUTES! That's it! Usually, it would take thirty to forty-five minutes to bord a plane, but this one only took TEN MINUTES! But, I'll have to say it was the smallest plane I've ever seen yet and there wasn't much people either.
+
+After six hours of flight, we landed at the Yellowknife Airport(YZF). We were wondering why the flight attendants were wearing winter jackets and than, the plane hatch opened... The plane just landed on the runway! There was a portale staircase at the hatch and the door to the airport building just 20 to 30 meters away, but it was really cold. -10&deg;C and I was in T-shirt and jeans.
+> Note to self: Always look at what the flight attendants are wearing before getting out.
+The 
 
 -------
 
